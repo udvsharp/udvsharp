@@ -6,5 +6,5 @@ P.S. I also enjoy playing electric guitar :guitar:.
 ### Find  me here :mag_right:
 - My tweets on [Twitter](https://twitter.com/udvtweet)
 - My photos on [Instagram](https://instagram.com/udvcode)
-- Send me message by [Telegram](https://t.me/udvcode)
-- Listen my music and covers on [Soundcloud](https://soundcloud.com/udvplay)
+- My [Telegram](https://t.me/udvcode) account
+- Listen to my music and covers on [Soundcloud](https://soundcloud.com/udvplay)
